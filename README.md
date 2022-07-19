@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+- 🔭 I’m currently working on Cryptocurrency, BlockChain, Defi, Web3
+- 🌱 I’m currently learning Quantitative Trading Strategies
+- 👯 I’m looking to collaborate on NLP
+- 🤔 I’m looking for help with who are interested in Blockchain
+- 💬 Ask me about my project
+- 📫 How to reach me: cholianli970518@gmail.com
+
 <!--
 **Cholianlll/Cholianlll** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
