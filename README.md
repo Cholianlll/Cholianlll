@@ -20,4 +20,28 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+
 -->
+
+        \          Cholian           /
+         \                         /
+          \    Wandering in the   /
+           ]  ocean of knowledge [    ,'|
+           ]                     [   /  |
+           ]___               ___[ ,'   |
+           ]  ]\             /[  [ |:   |
+           ]  ] \           / [  [ |:   |
+           ]  ]  ]         [  [  [ |:   |
+           ]  ]  ]__     __[  [  [ |:   |
+           ]  ]  ] ]\ _ /[ [  [  [ |:   |
+           ]  ]  ] ] (#) [ [  [  [ :===='
+           ]  ]  ]_].nHn.[_[  [  [
+           ]  ]  ]  HHHHH. [  [  [
+           ]  ] /   `HH("N  \ [  [
+           ]__]/     HHH  "  \[__[
+           ]         NNN         [
+           ]         N/"         [
+           ]         N H         [
+          /          N            \
+         /           q,            \
+        /                           \
